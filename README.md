@@ -1,2 +1,0 @@
-# Ritizinn
-Ritizinn Portifolio Sangrento 
